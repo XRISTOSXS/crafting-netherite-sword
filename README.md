@@ -7,4 +7,4 @@ Guide to put this pack on minecraft
 3. in this menu pres <options> and after <pres resource packs>
 4. now you upload the pack and pres <done>
 5. now pres <done> and back to game 
-👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻
+0 👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻👍🏻
